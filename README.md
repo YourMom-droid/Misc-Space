@@ -1,1 +1,0 @@
-# Seven-Deadly-Sins-Translation-
